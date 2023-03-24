@@ -1,1 +1,1 @@
-# [👉resume](https://lifealsoisgg.github.io/resume/resume.pdf)
+# [👉resume](https://lifeisalsogg.github.io/resume/resume.pdf)
